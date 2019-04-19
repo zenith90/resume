@@ -2,7 +2,7 @@
 # 联系方式
 
 - 手机：180.... 
-- Email：735305610@qq.com 
+- Email：sokminyo@qq.com 
 - QQ：735305610
 
 
